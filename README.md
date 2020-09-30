@@ -1,0 +1,2 @@
+# DarMokausi
+Bandau kazka ismokti
